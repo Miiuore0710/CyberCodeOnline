@@ -1,0 +1,1 @@
+The the N124M module implant increases alacrity, optics stability and magnification while reducing excess neural data noise. Later batches of this module N234A recieved optimizations and necessary data debugging making it obsolete. 
