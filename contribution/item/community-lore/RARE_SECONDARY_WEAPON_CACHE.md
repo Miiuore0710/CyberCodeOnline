@@ -1,0 +1,1 @@
+An encrypted data stick containing various Special weapon designs and prototypes produced by the authorities to replace older weapon variants. These weapon prototypes also utilizes power from energy cells. Some data may be encrypted or corrupted but it can be recovered by our technicians at our molecular printer hubs.
